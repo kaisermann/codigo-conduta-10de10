@@ -2,7 +2,7 @@
 
 A comunidade **10de10** é um ambiente amistoso e de boa convivência. Estimulamos a formação de todos os tipos de relações no grupo e queremos que todas as pessoas se sintam bem-vindas, bem recebidas e que tenham liberdade para se divertir, trocar ideias e conversar sobre os mais diversos assuntos, desde piadas com órgãos genitais até os problemas políticos e sociais do Brasil e do mundo.
 
-Com o crescimento do site, o grupo dos patrões vai junto e estabelecemos algumas regras para evitar problemas entre os membros. Estimulamos SEMPRE a troca de ideias divergentes de maneira saudável, responsável e respeitosa, mas, no momento, infelizmente não há como ter sempre um de nós presente para aparar as arestas e resolver questões pontuais. Sem a presença de um PODER MODERADOR (alô Dom Pedro), estas questões acabam crescendo e, humanos que somos, estamos falhando em cuidar deles.
+Com o crescimento do site, o grupo dos patrões vai junto e estabelecemos algumas regras para evitar problemas entre os membros. Estimulamos **SEMPRE** a troca de ideias divergentes de maneira saudável, responsável e respeitosa, mas, no momento, infelizmente não há como ter sempre um de nós presente para aparar as arestas e resolver questões pontuais. Sem a presença de um **PODER MODERADOR** (alô Dom Pedro), estas questões acabam crescendo e, humanos que somos, estamos falhando em cuidar deles.
 
 Por isso, queremos estabelecer o básico de regras de convivência que devem ser seguidos para termos um ambiente acolhedor, divertido e saudável para todas e todos. 
 
